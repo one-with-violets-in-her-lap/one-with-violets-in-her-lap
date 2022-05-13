@@ -1,2 +1,2 @@
 
-![вайб с пацами](https://user-images.githubusercontent.com/83793845/168289926-6e604265-296d-4546-a238-54d8d919baee.png)
+![artworks-oRGSf2vjdqn3KZ9m-Kf0KDQ-t500x500](https://user-images.githubusercontent.com/83793845/168290122-adcca2f8-6bf8-4d39-96a0-d2f9029945e4.jpg)
